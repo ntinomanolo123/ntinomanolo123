@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @ntinomanolo123
+- 👀 I’m interested in ... computer engineering
+- 🌱 I’m currently learning ... pattern recognition
+- 📫 How to reach me: email:fastfood123@hotnail.gr  
